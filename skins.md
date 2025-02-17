@@ -1,16 +1,13 @@
 # [MyzeJD](https://osu.ppy.sh/users/3257847) skins
 
-# [monkoedit v2](https://drive.google.com/file/d/16HlaY4tRjWhhXeZf5oXLE9v62H0lFswL/view?usp=sharing)
-![image](https://i.postimg.cc/BvjZCfqj/monkoeditv2prev.png)
+# [miskadeluxe edited](https://drive.google.com/drive/folders/1DjIGN5mz5RZZ0mu4Jwq_NXPItYOlxnwh?usp=sharing)
+![image](https://i.postimg.cc/Vk3xPshD/screenshot1064.jpg)
 
-# [regalon fancy](https://drive.google.com/file/d/1HBBJFeGBfjuzJPBA-uiYhhJUoBtSRmMt/view?usp=sharing)
-![image](https://i.postimg.cc/mgDYGp2x/regalonfancypreview.png)
+# [gn edit](https://drive.google.com/drive/folders/1IWBz5Fd7UElwUcLj6O-csuUo8QN51pZE?usp=sharing)
+![image](https://i.postimg.cc/QC4z4j5g/screenshot1065.jpg)
 
+# [monkoedit - malisz](https://drive.google.com/drive/folders/1GJcd1Xv7fPGQ5yFUsPWU7UWXuHK4e525?usp=sharing)
+![image](https://i.postimg.cc/90FSYD4F/screenshot1067.jpg)
 
-# [boshyman](https://drive.google.com/file/d/1Z5GoEbqNWj0ZFraARsoMI3vTUoVmLT4C/view?usp=sharing)
-![image](https://i.postimg.cc/VL4qpPwB/boshymanpreview.png)
-
-# [monkoedit](https://drive.google.com/file/d/1Qt0glXdBl-wCl3T2sFzbX52FoiaHNNp1/view?usp=sharing)
-![image](https://i.postimg.cc/Z5v20hq1/ghettopreviewmonkoedit.png)
 
 

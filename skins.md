@@ -9,7 +9,7 @@
 # [monkoedit - malisz](https://drive.google.com/file/d/1AeiB1SZ4pScSX4jvZ17pxqD2Yq1nUnXO/view?usp=sharing)
 ![image](https://i.postimg.cc/90FSYD4F/screenshot1067.jpg)
 
-# [jaazerschmino zadymizarz - edit](https://drive.google.com/file/d/1ThJkcgTgN2lI7yrbgL8oDyJVWN65rdwm/view?usp=sharing)
+# [jaazerschmino zadymiarz - edit](https://drive.google.com/file/d/1ThJkcgTgN2lI7yrbgL8oDyJVWN65rdwm/view?usp=sharing)
 ![image](https://i.postimg.cc/Y0GmVrPZ/screenshot1074.jpg)
 
 

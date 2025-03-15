@@ -9,6 +9,10 @@
 # [monkoedit - malisz](https://drive.google.com/drive/folders/1GJcd1Xv7fPGQ5yFUsPWU7UWXuHK4e525?usp=sharing)
 ![image](https://i.postimg.cc/90FSYD4F/screenshot1067.jpg)
 
+# [jaazerschmino zadymizarz - edit](https://drive.google.com/file/d/1ThJkcgTgN2lI7yrbgL8oDyJVWN65rdwm/view?usp=sharing)
+
+
+
 
 
 

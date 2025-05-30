@@ -12,13 +12,13 @@
 #[rafis podkrecony (30/05)](https://drive.google.com/file/d/1r-EJn1a8gIP7EpFR9s5kD-bPMhqNvCxX/view?usp=sharing)
 ![image](https://i.postimg.cc/vmQX6ZKD/screenshot1140.jpg)
 
-# [miskadeluxe edited](https://drive.google.com/file/d/1SvQdsbF9G4KmdKEOkDhgJjRk7AhgDgCR/view?usp=sharing)
+# [miskadeluxe edited (17/02)](https://drive.google.com/file/d/1SvQdsbF9G4KmdKEOkDhgJjRk7AhgDgCR/view?usp=sharing)
 ![image](https://i.postimg.cc/Vk3xPshD/screenshot1064.jpg)
 
-# [gn edit](https://drive.google.com/file/d/1MY9AckDCEFuwAfslhxcwy1zomG-w3mM9/view?usp=sharing)
+# [gn edit (17/02)](https://drive.google.com/file/d/1MY9AckDCEFuwAfslhxcwy1zomG-w3mM9/view?usp=sharing)
 ![image](https://i.postimg.cc/QC4z4j5g/screenshot1065.jpg)
 
-# [monkoedit - malisz](https://drive.google.com/file/d/1AeiB1SZ4pScSX4jvZ17pxqD2Yq1nUnXO/view?usp=sharing)
+# [monkoedit - malisz (17/02)](https://drive.google.com/file/d/1AeiB1SZ4pScSX4jvZ17pxqD2Yq1nUnXO/view?usp=sharing)
 ![image](https://i.postimg.cc/90FSYD4F/screenshot1067.jpg)
 
 

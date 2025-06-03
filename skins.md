@@ -1,6 +1,6 @@
 # [MyzeJD](https://osu.ppy.sh/users/3257847) skins
 
-# [jaazerschmino zadymiarz - edit (30/05)](https://drive.google.com/file/d/199iY04Twr0VQbtcHZtHseD9zdGvGSOyz/view?usp=sharing)
+# [jaazerschmino zadymiarz - edit (03/06)](https://drive.google.com/file/d/199iY04Twr0VQbtcHZtHseD9zdGvGSOyz/view?usp=sharing)
 ![image](https://i.postimg.cc/Y0GmVrPZ/screenshot1074.jpg)
 
 # [-- abnormal (30/05)](https://drive.google.com/file/d/1znNC9rdR0zN8ki7RwJ2RRExIK4squ9nt/view?usp=sharing)

@@ -1,5 +1,8 @@
 # [MyzeJD](https://osu.ppy.sh/users/3257847) skins
 
+# [stellerino zadymiarz (10/07)](https://drive.google.com/file/d/1qc4DLsmT19DdJtel7XdURT-bBqx6DfEq/view?usp=sharing)
+![image](https://i.postimg.cc/258v2Kv9/screenshot1171.jpg)
+
 # [jaazerschmino zadymiarz - edit (03/06)](https://drive.google.com/file/d/199iY04Twr0VQbtcHZtHseD9zdGvGSOyz/view?usp=sharing)
 ![image](https://i.postimg.cc/Y0GmVrPZ/screenshot1074.jpg)
 
